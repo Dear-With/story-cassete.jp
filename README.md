@@ -1,0 +1,2 @@
+# story-cassete.jp
+RPG
